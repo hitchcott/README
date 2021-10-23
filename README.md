@@ -1,1 +1,1 @@
-# README
+This account is on temporary haitus.
