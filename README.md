@@ -1,1 +1,1 @@
-This account is on temporary haitus.
+This account is on haitus
