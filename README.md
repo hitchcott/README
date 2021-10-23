@@ -1,1 +1,1 @@
-This account is on haitus
+This account is on hiatus
